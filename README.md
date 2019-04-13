@@ -1,4 +1,4 @@
-# THE POSITITVITY-BOX 💌
+# THE POSITIVITY-BOX 💌
 
 ##### GIF of project:
 
